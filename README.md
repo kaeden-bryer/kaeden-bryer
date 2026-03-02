@@ -1,3 +1,3 @@
-## Hi there 👋
+## Hey! I'm Kaeden👋
 
-I'm Kaeden, and this is my README that is currently in progress :D
+Learning as much as I can about this big world in my small lifetime🌌
